@@ -39,6 +39,5 @@ https://drive.google.com/file/d/1tBghPcWnvIEX7gR_98H9c2TEBxju2581/view?usp=shari
 PROJECT DEMONSTRATION LINK :
 
 
-PROJECT DEMO AND WORKING :
 
 
